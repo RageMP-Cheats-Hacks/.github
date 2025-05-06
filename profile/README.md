@@ -1,4 +1,4 @@
-# 🚀 RageMP-Cheat-Pro-2025: Ultimate Undetected GTA 5 Cheatc for RageMP  
+# 🚀 RageMP-Cheat-Pro-2025: Ultimate Undetected GTA 5 Cheats for RageMP  
 
 **A powerful and reliable private cheat for GTA 5 (RageMP) with advanced functionality, including JS execution, enhanced gameplay options, and top-tier security.**  
 
